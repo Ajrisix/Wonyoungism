@@ -1,0 +1,2 @@
+# Wonyoungism
+Strona kanału wonyoungism 
